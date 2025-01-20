@@ -1,0 +1,1 @@
+LinkedIn Link - [https://www.linkedin.com/posts/smit-shah01_powerbi-datavisualization-lego-activity-7285009241176739841-C9Vo?utm_source=social_share_sheet&utm_medium=member_desktop_web](https://www.linkedin.com/posts/smit-shah01_powerbi-datavisualization-lego-activity-7285009241176739841-C9Vo?utm_source=share&utm_medium=member_desktop)
